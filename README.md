@@ -1,5 +1,13 @@
-<div align="center"> " BOOM BA DA BOOM BOOM BOOM, HAH! "</div>
-<div align="center"> Idia Shroud irl trust </div>
+<div align="center">
+  
+  ${\textsf{\color{#ffffff} <text> BOOM BA DA BOOM BOOM BOOM, HAH! " }}$ 
+  
+  </div>
+<div align="center">
+  
+  ${\textsf{\color{#ffffff} <text> Idia Shroud irl trust }}$
+  
+  </div>
 
 ***
 
