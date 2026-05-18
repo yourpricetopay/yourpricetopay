@@ -1,6 +1,6 @@
 <div align="center">
   
-  ${\textsf{\color{#ffffff} <text> BOOM BA DA BOOM BOOM BOOM, HAH! " }}$ 
+  ${\textsf{\color{#ffffff} <text> " BOOM BA DA BOOM BOOM BOOM, HAH! " }}$ 
   
   </div>
 <div align="center">
