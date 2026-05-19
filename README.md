@@ -1,3 +1,7 @@
+<div align="center">꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂</div>
+
+&emsp;
+
 <div align="center">
   
   ${\textsf{\color{#0669ec} <text> " BOOM BA DA BOOM BOOM BOOM, HAH! " }}$ 
@@ -5,13 +9,14 @@
   </div>
 <div align="center">
   
-  ${\textsf{\color{#0669ec} <text> Idia Shroud irl trust }}$
+  ${\textsf{\color{#0669ec} <text>   𝗡𝗼𝘄 𝗽𝗹𝗮𝘆𝗶𝗻𝗴  ♪}}$
+‎</br>
+${\textsf{\color{#0669ec} <text> "lover, you should've come over" }}$
+</br>
+${\textsf{\color{#0669ec} <text> 𝟷:𝟺𝟶  ────●───────  𝟹:𝟸𝟽 }}$
+</br>
+${\textsf{\color{#0669ec} <text>    ⇄           ⏮   ⏸   ⏭            ↻ }}$
   
-  </div>
-<div align="center">
-  
-  ![](https://github.com/yourpricetopay/yourpricetopay/blob/2f540c8122a785429c92953dbd9e5322e784ea2d/IMG_0740.gif)
-
   </div>
 
 ***
