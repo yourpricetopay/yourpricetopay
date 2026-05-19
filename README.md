@@ -1,11 +1,11 @@
 <div align="center">
   
-  ${\textsf{\color{#ffffff} <text> " BOOM BA DA BOOM BOOM BOOM, HAH! " }}$ 
+  ${\textsf{\color{#0669ec} <text> " BOOM BA DA BOOM BOOM BOOM, HAH! " }}$ 
   
   </div>
 <div align="center">
   
-  ${\textsf{\color{#ffffff} <text> Idia Shroud irl trust }}$
+  ${\textsf{\color{#0669ec} <text> Idia Shroud irl trust }}$
   
   </div>
 <div align="center">
