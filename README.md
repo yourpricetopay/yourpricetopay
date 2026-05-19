@@ -4,18 +4,18 @@
 
 <div align="center">
   
-  ${\textsf{\color{#0669ec} <text> " BOOM BA DA BOOM BOOM BOOM, HAH! " }}$ 
+  ${\textsf{\color{#bceaff} <text> " BOOM BA DA BOOM BOOM BOOM, HAH! " }}$ 
   
   </div>
 <div align="center">
   
-  ${\textsf{\color{#0669ec} <text>   𝗡𝗼𝘄 𝗽𝗹𝗮𝘆𝗶𝗻𝗴  ♪}}$
+${\textsf{\color{#5fdef5}         𝗡𝗼𝘄 𝗽𝗹𝗮𝘆𝗶𝗻𝗴  ♪}}$
 ‎</br>
-${\textsf{\color{#0669ec} <text> "lover, you should've come over" }}$
+${\textsf{\color{#5fdef5} <text> "lover, you should've come over" }}$
 </br>
-${\textsf{\color{#0669ec} <text> 𝟷:𝟺𝟶  ────●───────  𝟹:𝟸𝟽 }}$
+${\textsf{\color{#bceaff} <text> 𝟷:𝟺𝟶  ────●───────  𝟹:𝟸𝟽 }}$
 </br>
-${\textsf{\color{#0669ec} <text>    ⇄           ⏮   ⏸   ⏭            ↻ }}$
+${\textsf{\color{#bceaff} <text>    ⇄           ⏮   ⏸   ⏭            ↻ }}$
   
   </div>
 
