@@ -10,6 +10,8 @@
 <div align="center">
   
 ${\textsf{\color{#bceaff} 25+ above dni / int with caution if companion }}$
+</br>
+${\textsf{\color{#bceaff} ask 2 rp in pt if i have the lf roleplay status in pt }}$
 
   
   </div>
