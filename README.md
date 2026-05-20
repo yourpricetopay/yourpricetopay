@@ -1,4 +1,4 @@
-<div align="center">꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂</div>
+<div align="center">──(﹙˓ᯤ˒﹚)──</div>
 
 &emsp;
 
@@ -9,13 +9,8 @@
   </div>
 <div align="center">
   
-${\textsf{\color{#5fdef5}         𝗡𝗼𝘄 𝗽𝗹𝗮𝘆𝗶𝗻𝗴  ♪}}$
-‎</br>
-${\textsf{\color{#5fdef5} <text> "lover, you should've come over" }}$
-</br>
-${\textsf{\color{#bceaff} <text> 𝟷:𝟺𝟶  ────●───────  𝟹:𝟸𝟽 }}$
-</br>
-${\textsf{\color{#bceaff} <text>    ⇄           ⏮   ⏸   ⏭            ↻ }}$
+${\textsf{\color{#bceaff} 25+ above dni / int with caution if companion }}$
+
   
   </div>
 
