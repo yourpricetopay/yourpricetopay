@@ -11,11 +11,11 @@
   
 ${\textsf{\color{#bceaff} 25+ above dni / int with caution if companion }}$
 </br>
-${\textsf{\color{#bceaff} ask 2 rp in pt if i have the lf roleplay status in pt }}$
+${\textsf{\color{#bceaff} don't be shy cuddling with me, idc if u cover me }}$
 
   
   </div>
 
 ***
 
-![](https://github.com/yourpricetopay/yourpricetopay/blob/d2503dc0c4bedd25155d367ace6ba9164b1da244/IMG_0727.jpeg)
+![](https://github.com/yourpricetopay/yourpricetopay/blob/3529a2d2dbcdf95ce7e5529b041505ea1d557990/IMG_0742.jpeg)
