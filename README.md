@@ -11,7 +11,7 @@
   
 ${\textsf{\color{#bceaff} 25+ above dni / int with caution if companion }}$
 </br>
-${\textsf{\color{#bceaff} tf is going on my life bro 😭💔 #soemo #magicam #ineedhelp }}$
+${\textsf{\color{#bceaff} tf is going on my life bro 😭💔 }}$
 
 </br>
 -           ╔══ஓ๑♡๑ஓ══╗           -
