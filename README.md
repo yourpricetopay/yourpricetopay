@@ -11,7 +11,7 @@
   
 ${\textsf{\color{#bceaff} 25+ above dni / int with caution if companion }}$
 </br>
-${\textsf{\color{#bceaff} tf is going on my life bro 😭💔 }}$
+${\textsf{\color{#bceaff} too lazy to fix my github }}$
 
 </br>
 -           ╔══ஓ๑♡๑ஓ══╗           -
