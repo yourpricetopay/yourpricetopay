@@ -11,7 +11,7 @@
   
 ${\textsf{\color{#bceaff} 25+ above dni / int with caution if companion }}$
 </br>
-${\textsf{\color{#bceaff} too lazy to fix my github }}$
+${\textsf{\color{#bceaff} still rocking your hoodie baby, even though it hurts . }}$
 
 <details>
 
@@ -23,16 +23,6 @@ mihoyo/hyv games , batim , undertale , twst , forsaken , fnaf , pjsk , dandys wo
   ${\textsf{\color{#5fdef5} lots of fandoms to list more in here but i felt nice }}$
 </details>
 
-</br>
--           ╔══ஓ๑♡๑ஓ══╗           -
-</br>
-</br>
-♫ .. “  𝙃𝙤𝙡𝙙 𝙢𝙚, 𝙘𝙤𝙣𝙨𝙤𝙡𝙚 𝙢𝙚
-</br>
-𝙖𝙣𝙙 𝙩𝙝𝙚𝙣 𝙄'𝙡𝙡 𝙡𝙚𝙖𝙫𝙚 𝙬𝙞𝙩𝙝𝙤𝙪𝙩 𝙖 𝙩𝙧𝙖𝙘𝙚. “  ♬.ᐟ
-</br>
-</br>
--           ╚══ஓ๑♡๑ஓ══╝            - 
 </br>
 
   
