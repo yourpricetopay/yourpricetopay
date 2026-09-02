@@ -3,5 +3,8 @@
 
 </br>
 
+<div align=“center”>
 
-<div align=“center”> work in progress </div>
+${\textsf{\color{#bceaff} <text> wip }}$ 
+
+</div>
